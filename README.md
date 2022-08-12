@@ -1,2 +1,5 @@
-# chronicle-of-infinity-cheat-codes-diamonds-hacks
-Chronicle of Infinity Cheats Codes unlimited free diamonds Hacks tips
+# Chronicle of Infinity Cheats Codes unlimited free diamonds Hacks tips
+
+Chronicle of Infinity Cheats Codes unlimited free diamonds Hacks tips - One of the first set of activities that you will undertake is the initial primary mission objective. The current target can be seen on the left side of the screen. Clicking it can easily take you to the location required for starting the task. Most of the main mission goals will allow you to make progress in the campaign phase, although some missions will allow you to experience new unlocked features and game modes. Generally speaking, the completion of the main task should be the first task, considering that its progress is the key to the other parts of the chronicle of the infinite world. To a large extent, the unlimited chronicle provided players with a lot of freedom in the early days, and you can choose how to deal with challenges. However, in order to improve efficiency, we recommend adjusting your progress to the available main tasks and sub tasks. Chronicle of Infinity top up guide
+
+[see here](https://growhunt.top/chronicle-of-infinity/)
